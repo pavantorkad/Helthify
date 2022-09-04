@@ -48,6 +48,15 @@ For special and regular disease like asthma,sugar,bp or any other disease  patie
  
 
 
+![2022-09-04 (10)](https://user-images.githubusercontent.com/111223452/188328129-fe6e1866-13e7-4336-81b6-0f81d1c1310a.png)
 
 
+![2022-09-04 (11)](https://user-images.githubusercontent.com/111223452/188328137-bd590027-2de2-421c-8545-6001e5fa09be.png)
+![2022-09-04 (13)](https://user-images.githubusercontent.com/111223452/188328141-df8b1563-01e9-4ea9-ad31-f27d9378fc83.png)
 
+![2022-09-04 (12)](https://user-images.githubusercontent.com/111223452/188328140-c04deb4e-1664-4814-a5e1-a938cd77eb8d.png)
+![2022-09-04 (14)](https://user-images.githubusercontent.com/111223452/188328144-8e25465c-ec1e-4e0a-bdcf-c2029d3f442e.png)
+![2022-09-04 (15)](https://user-images.githubusercontent.com/111223452/188328146-23870468-b150-49e3-83d3-5edd304bf629.png)![2022-09-04 (17)](https://user-images.githubusercontent.com/111223452/188328155-1ab5362f-fff3-4724-b9a7-c719b97df0b4.png)
+
+![2022-09-04 (16)](https://user-images.githubusercontent.com/111223452/188328149-97a77ec6-6416-46c8-b555-ec458010d4f2.png)
+![2022-09-04 (18)](https://user-images.githubusercontent.com/111223452/188328158-ebca72fc-bb8b-43bf-827f-c89777b58ab6.png)
